@@ -1,15 +1,10 @@
-#THE MISSISSIPPI SCHEME
+# THE MISSISSIPPI SCHEME
 
 > Some in clandestine companies combine;
-> 
 > Erect new stocks to trade beyond the line;
-> 
 > With air and empty names beguile the town,
-> 
 > And raise new credits first, then cry 'em down;
-> 
 > Divide the empty nothing into shares, And set the crowd together by the ears.
-> 
 > -- Defoe.
 
 The personal character and career of one man are so intimately connected with the great scheme of the years 1719 and 1720, that a history of the Mississippi madness can have no fitter introduction than a sketch of the life of its great author, John Law. Historians are divided in opinion as to whether they should designate him a knave or a madman. Both epithets were unsparingly applied to him in his lifetime, and while the unhappy consequences of his projects were still deeply felt. Posterity, however, has found reason to doubt the justice of the accusation, and to confess that John Law was neither knave nor madman, but one more deceived than deceiving; more sinned against than sinning. He was thoroughly acquainted with the philosophy and true principles of credit. He understood the monetary question better than any man of his day; and if his system fell with a crash so tremendous, it was not so much his fault as that of the people amongst whom he had erected it. He did not calculate upon the avaricious frenzy of a whole nation; he did not see that confidence, like mistrust, could be increased, almost ad infinitum, and that hope was as extravagant as fear. How was he to foretell that the French people, like the man in the fable, would kill, in their frantic eagerness, the fine goose he had brought to lay them so many golden eggs? His fate was like that which may be supposed to have overtaken the first adventurous boatman who rowed from Erie to Ontario. Broad and smooth was the river on which he embarked; rapid and pleasant was his progress; and who was to stay him in his career? Alas for him! the cataract was nigh. He saw, when it was too late, that the tide which wafted him so joyously along was a tide of destruction; and when he endeavoured to retrace his way, he found that the current was too strong for his weak efforts to stem, and that he drew nearer every instant to the tremendous falls. Down he went over the sharp rocks, and the waters with him. He was dashed to pieces with his bark, but the waters, maddened and turned to foam by the rough descent, only boiled and bubbled for a time, and then flowed on again as smoothly as ever. Just so it was with Law and the French people. He was the boatman and they were the waters.
